@@ -1,1 +1,0 @@
-# v22growuprate_cont
